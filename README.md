@@ -33,29 +33,31 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
-1. Of the Parents and Birth of Fryer Bacon, and how he addicted himselfe to Learning.
+1. THE Famous Historie of Fryer BACON. Containing the wonderfull things that he did in his Life: Also the manner of his Death; With the Liues and Deaths of the two Coniurers, Bungye and Vandermast. Very pleasant and delightfull to be read.
 
-1. How Fryer Bacon deceiued his Man, that would fast for his conscience sake.
+    _ Of the Parents and Birth of Fryer Bacon, and how he addicted himselfe to Learning.
 
-1. How Fryer Bacon saued a Gentleman that had giuen himselfe to the Deuill.
+    _ How Fryer Bacon deceiued his Man, that would fast for his conscience sake.
 
-1. How Fryer Bacon made a Brasen head to speake, by the which hee would haue walled England about with Brasse.
+    _ How Fryer Bacon saued a Gentleman that had giuen himselfe to the Deuill.
 
-1. How Fryer Bacon by his Art tooke a Towne, when the King had lyen before it three months, without doing to it any hurt.
+    _ How Fryer Bacon made a Brasen head to speake, by the which hee would haue walled England about with Brasse.
 
-1. How Fryer Bacon ouer-came the German Coniurer Vandermast, and make a Spirit of his owne carry him into Germany.
+    _ How Fryer Bacon by his Art tooke a Towne, when the King had lyen before it three months, without doing to it any hurt.
 
-1. How Fryer Bacon through his wisdome saued the endangered liues of three Brethren.
+    _ How Fryer Bacon ouer-came the German Coniurer Vandermast, and make a Spirit of his owne carry him into Germany.
 
-1. How Fryer Bacon serued the Theeues that robbed him, and of the sport that his man Miles had with them.
+    _ How Fryer Bacon through his wisdome saued the endangered liues of three Brethren.
 
-1. How Vandermast, for the disgrace that he had receiued by Fryer Bacon sent a Souldier to kill him; and how Fryer Bacon escaped killing, and turned the Souldier from an Atheist to be a good Christian.
+    _ How Fryer Bacon serued the Theeues that robbed him, and of the sport that his man Miles had with them.
 
-1. How Fryer Bacon deceiued an old Vsurer.
+    _ How Vandermast, for the disgrace that he had receiued by Fryer Bacon sent a Souldier to kill him; and how Fryer Bacon escaped killing, and turned the Souldier from an Atheist to be a good Christian.
 
-1. How Miles, Fryer Bacons man, did coniure for meat, and got meat for himselfe and his Hoast.
+    _ How Fryer Bacon deceiued an old Vsurer.
 
-1. How Vandermast and Fryer Bungye met, and how they striued who should excell one another in their Coniurations; and of their deaths.
+    _ How Miles, Fryer Bacons man, did coniure for meat, and got meat for himselfe and his Hoast.
+
+    _ How Vandermast and Fryer Bungye met, and how they striued who should excell one another in their Coniurations; and of their deaths.
 
 **Types of content**
 
